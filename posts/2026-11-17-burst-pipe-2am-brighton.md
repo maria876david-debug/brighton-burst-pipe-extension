@@ -1,0 +1,3 @@
+# Burst Pipe at 2am in Brighton: Who to Call First and What to Do While You Wait
+
+A burst pipe at 2am is a race against water, and the first five minutes matter more than the plumber's arrival time. First, turn off the stopcock — usually under the kitchen sink or by the front door. Second, open the cold taps to drain what is left in the pipes, and switch off the electrics if water is near sockets. Third, move valuables and soft furnishings out of the water's path. Only then call the emergency plumber, and while you wait, take photos and short videos of everything — your insurer will want them. A calm ten minutes at the start can save thousands in damage later. Full guide: https://brightonburstpipe.com
